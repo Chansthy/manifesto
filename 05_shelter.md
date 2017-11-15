@@ -1,3 +1,3 @@
 # Shelter
 
-homes that will stand the test of time.  and be carbon negative.
+homes that will stand the test of time & be carbon negative.

@@ -1,5 +1,5 @@
 # Remediation
 
-of the air and sea
+we mush heal our air and sea.
 
-remove pollutants
+remove pollutants. remove carbon. add life. 

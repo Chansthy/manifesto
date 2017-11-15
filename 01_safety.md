@@ -2,6 +2,6 @@
 
 protection from rogue waves, hurricanes, and other threats is vital to the survival of our dream and ourselves.
 
-In order to protect the colony, an artificial beach shall be constructed.
+to protect the colony, an artificial beach will be constructed.
 
-Other methods must also be devised.  There should never be only one layer of protection.
+other methods must also be devised.  there should never be just one layer of protection.
