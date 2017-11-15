@@ -6,6 +6,6 @@ remove pollutants. remove carbon. add life.
 
 ## sea
 
-filtration through life
+filtration through life. reefs are great filters.
 
 ## air
